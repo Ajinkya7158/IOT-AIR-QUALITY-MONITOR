@@ -33,7 +33,7 @@ environmental awareness positions the project as an essential tool for modern ai
 
 # OUTPUT OF THE TASK 
 
-
+https://github.com/user-attachments/assets/cad3c398-1944-4295-b5c6-b14848040d21
 
 
 
